@@ -3,4 +3,9 @@
 ### Mi url oficial vendra siendo ###
 **www.limpiezamopas.cl**
 
+####Me gustó bastante el ramo, a pesar de que costó introducirme al mundo de los códigos (aunque hayan sido los más básicos). Gracias Faco por la paciencia y la buena onda####
+
+#####Saludos, Isidora Quevedo#####
+
+
 
