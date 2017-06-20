@@ -7,16 +7,10 @@
 
 ##### Por ello es que la página les facilita elegir entre #####
 
-
--
 - Limpieza doméstica
--
 - Limpieza de oficinas
--
 - Limpieza de eventos corporativos
--
 - Limpieza posterior a eventos domésticos
-
 
 
 
